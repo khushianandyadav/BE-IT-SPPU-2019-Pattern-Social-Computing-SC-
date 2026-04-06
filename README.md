@@ -1,0 +1,1 @@
+# BE-IT-SPPU-2019-Pattern-Social-Computing-SC-
